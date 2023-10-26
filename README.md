@@ -1,1 +1,1 @@
-# .github
+Garmingo - Excellence for Everyone
